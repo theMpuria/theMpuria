@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @theMpuria
+- 👀 I’m interested in tech
+- 🌱 I’m currently tying to learn coding from github 
+- 💞️ I’m looking to collaborate on email 
+- 📫 How to reach me mitanshmalik8008@gmail.com
